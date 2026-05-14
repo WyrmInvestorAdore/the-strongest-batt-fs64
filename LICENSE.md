@@ -1,4 +1,4 @@
-#  
+#  top the strongest battlegrounds Scripts offers the most advanced the strongest battlegrounds Script, with auto-heal and anti-ban. Perfect for
 
 
 
